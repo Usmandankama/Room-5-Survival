@@ -29,5 +29,4 @@ Just a fun app to be on the positive. I am devastated SEND HELP!!!
 ---
 
 This app makes roach hunting a little more fun and a lot more competitive. 🚫🪳
-# room_5_survival
  
